@@ -1,11 +1,16 @@
+---
 title: "Lifetime Royalty Machine"
 description: "Turn Simple Pages Into Passive Revenue Streams—On Autopilot!"
 ---
+
+<div align="center">
 
 # **Lifetime Royalty Machine**
 ### *Turn Simple Pages Into Passive Revenue Streams—On Autopilot!*
 
 ![Lifetime Royalty Machine](docs/assets/BXRG1%20(7).png)
+
+</div>
 
 ---
 
@@ -38,3 +43,14 @@ description: "Turn Simple Pages Into Passive Revenue Streams—On Autopilot!"
 🔹 Follow a tested strategy and watch your passive revenue grow.  
 
 ### **🚀 Get Started Today!**
+
+---
+
+<div align="center">
+
+[Privacy Policy](https://www.google.com) | [Disclaimer](https://www.google.com) | [Support](https://www.google.com)
+
+**WAYFEW13**  
+&copy; 2025 All Rights Reserved
+
+</div>
