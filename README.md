@@ -29,6 +29,7 @@ You’ve been sold the dream of making money while you sleep… but instead, you
 Lifetime Royalty Machine unlocks the secret to **micro-content**—small but impactful one-pagers that people actually WANT and KEEP BUYING. Whether it’s motivational prints, life guides, checklists, or planners, these evergreen assets generate ongoing royalties while you focus on living your life.
 
 ---
+<a href="https://warriorplus.com/o2/buy/p3r4ql/g2m671/rq04h6"><img src="https://warriorplus.com/o2/btn/fn200011021/p3r4ql/g2m671/425441"></a>
 
 ## **Why This Works (When Everything Else Fails!)**
 
