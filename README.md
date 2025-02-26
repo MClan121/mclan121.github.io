@@ -1,5 +1,5 @@
 
-# **Lifetime Royalty Machine**
+# **Lifetime Royalty Machine** 
 ### *Turn Simple Pages Into Passive Revenue Streams—On Autopilot!*
 
 ---
