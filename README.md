@@ -3,7 +3,7 @@
 # **Lifetime Royalty Machine**
 ### *Turn Simple Pages Into Passive Revenue Streams—On Autopilot!*
 
-![Lifetime Royalty Machine][(docs/assets/BXRG1%20(7).png)](https://google.com)
+![Lifetime Royalty Machine(docs/assets/BXRG1%20(7).png)](https://google.com)
 
 
 ---
