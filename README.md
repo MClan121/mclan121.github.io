@@ -1,7 +1,3 @@
----
-title: "Lifetime Royalty Machine"
-description: "Turn Simple Pages Into Passive Revenue Streams—On Autopilot!"
----
 
 <div align="center">
 
