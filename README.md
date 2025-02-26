@@ -1,6 +1,11 @@
+title: "Lifetime Royalty Machine"
+description: "Turn Simple Pages Into Passive Revenue Streams—On Autopilot!"
+---
 
-# **Lifetime Royalty Machine** 
+# **Lifetime Royalty Machine**
 ### *Turn Simple Pages Into Passive Revenue Streams—On Autopilot!*
+
+![Lifetime Royalty Machine](docs/assets/BXRG1%20(7).png)
 
 ---
 
@@ -18,7 +23,7 @@
 ✅ The secret to setting up passive royalty assets that sell 24/7  
 
 ---
-[https://github.com/MClan121/mclan121.github.io/blob/34ced36785a6b8deb7f094ed8c89a700620f8c08/docs/assets/BXRG1%20(7).png](https://google.com)
+
 ### **Why Choose the Lifetime Royalty Machine?**
 🚀 **Effortless Setup** – No prior experience needed  
 💰 **No Ads Required** – Build an organic revenue stream  
