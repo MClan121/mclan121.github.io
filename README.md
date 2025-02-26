@@ -3,7 +3,7 @@
 # **Lifetime Royalty Machine**
 ### *Turn Simple Pages Into Passive Revenue Streams—On Autopilot!*
 
-![Lifetime Royalty Machine](docs/assets/BXRG1%20(7).png)
+![Lifetime Royalty Machine](docs/assets/BXRG1%20(7).png)(https://google.com)
 
 
 ---
@@ -64,4 +64,4 @@ Lifetime Royalty Machine unlocks the secret to **micro-content**—small but imp
 **WAYFEW13**  
 &copy; 2025 All Rights Reserved
 
-</div>
+
